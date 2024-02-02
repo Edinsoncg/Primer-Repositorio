@@ -9,3 +9,5 @@
 - Penny
 - Bernadette Rostenkowski
 - Amy Farrah Fowler
+
+**Tiene 279 episodios en 12 temporadas**
